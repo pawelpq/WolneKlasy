@@ -1,0 +1,1 @@
+Tu znajd¹ siê klasy do urzytku w wielu projektach
